@@ -1,3 +1,4 @@
 ```
-Watch Out my Dumb Ideas
+Ideas don't come fully prepared !
+
 ```
